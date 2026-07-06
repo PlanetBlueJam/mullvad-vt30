@@ -1,4 +1,4 @@
-
+Enhance your Astrill VPN experience with Astrill VPN instant Plugin: server-switching & camouflage-mode, the #1 plugin. Includes server-switching and camouflage-mode for a safer
 
 
 
